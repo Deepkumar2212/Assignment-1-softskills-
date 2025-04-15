@@ -1,1 +1,1 @@
-# Assignment-1-softskills-Here i amsharing my first assignment of softskills
+# Assignment-1-softskills-Here I am sharing my first assignment of softskills
